@@ -17,7 +17,7 @@ I am available for hire to bring your visions to life! My expertise includes:
 - Babies  
 - Bands  
 - Bar Mitzvahs  
-<br>
+
 
 ### **Design & Artwork**  
 - Graphic Design  
