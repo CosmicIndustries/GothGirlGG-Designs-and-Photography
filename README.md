@@ -1,8 +1,8 @@
 # Welcome to Goth GirlGG Designs and Photography  
 
-Step into the world of creativity and artistry! <br>
+Step into the world of creativity and artistry! <br><br>
 This page is dedicated to showcasing my unique creations, spanning photography and custom designs. <br>
-Every piece of artwork you see here is my original work. Please respect my copyright by not removing, altering, or using my photos without prior permission.  
+Every piece of artwork you see here is my original work. Please respect my copyright by not removing, altering, or using my photos without prior permission. 
 <br><br>
 
 ---
